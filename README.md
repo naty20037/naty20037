@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @naty20037
+- tenho 15 anos, nasci em fevereiro
+- eu to no primeiro ano do ensino medio
+- gosto de tocar teclado e fazer musicas
+- gosto de ler e exercicios fisicos
