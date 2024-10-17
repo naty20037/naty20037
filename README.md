@@ -3,3 +3,13 @@
 - eu to no primeiro ano do ensino medio
 - gosto de tocar teclado e fazer musicas
 - gosto de ler e exercicios fisicos
+- eu tenho dois gatos
+- sou de humanas
+- quero trabalhar na area de saude, como instrumentatora cirurgica
+- gosto de dançar
+- gosto de correr e jogar volei
+- jogo bastante volei com meus amigos
+- minha serie favorita é gilmore girls
+- sou muito fã do charlie bronw jr.
+- gosto muito de comedia romanticas e filmes de ação
+- quero fazer intercambio 
